@@ -1,0 +1,2 @@
+# SIGED.certificado-preparatoria-autenticacion-CXGO810225HVZLRR06
+CXGO810225HVZLRR06
